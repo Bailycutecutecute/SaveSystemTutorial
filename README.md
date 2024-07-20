@@ -1,3 +1,7 @@
+# The finishing for this tutorial
+感谢阿严，受益匪浅。
+仅供学习参考，Thanks♪(･ω･)ﾉ
+--------------------------------------------------------------
 教程视频链接 Tutorial Videos: 
 
 YouTube - 
